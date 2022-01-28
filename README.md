@@ -1,3 +1,0 @@
-HI im julie
-
-I only this for upload my source codes so...
